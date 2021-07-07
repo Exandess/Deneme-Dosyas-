@@ -1,0 +1,1 @@
+Selam Yahuda Bunu Görüyor Musun Knks?
